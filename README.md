@@ -17,7 +17,7 @@ or im also on the official HyDE server discord  : The HyDE Project
 He/Him, but you can call me however you want i don't mind at all.
 
 - ⚡ Fun fact: ...
-My firt ever videa game was at age of 5 and it was gran turismo on the PS1, i wasnt going the right way but i had fun i guess.
+My first ever video game was at age of 5 and it was gran turismo on the PS1, i wasnt going the right way but i had fun i guess.
 
 <!---
 L0velyKlutzy/L0velyKlutzy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
